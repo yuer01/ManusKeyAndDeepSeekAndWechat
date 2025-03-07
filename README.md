@@ -9,7 +9,8 @@ Manus激活码资源共享 DeepSeek部署介绍 AI线下活动联系的微信群
 
 # 活动的介绍文档
 
-<a href="https://d5ckbc7rih.feishu.cn/wiki/KPnRwM3cLiDzn2kbOs8c1wUBnMc" "target="_blank">https://d5ckbc7rih.feishu.cn/wiki/KPnRwM3cLiDzn2kbOs8c1wUBnMc</a>
+https://d5ckbc7rih.feishu.cn/wiki/KPnRwM3cLiDzn2kbOs8c1wUBnMc  （请右键新窗口打开）
+
 
 文档目录
 
